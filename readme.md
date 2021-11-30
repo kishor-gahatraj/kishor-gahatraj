@@ -6,7 +6,7 @@
 ✔ Callme: ***He/His*** or ***TeamWorker*** 😊 <br>
 ✔ I’m currently student<br>
 ✔ I’m currently learning about c#<br>
-I’m currently learning about c#<br>
+✔ I’m currently learning about c#<br>
 ✔ Ask from me anything you want, If I am alive I will answer for sure 😉<br>
 ✔ Fun fact : *I Always try to LEARN and SHARE* 😎<br><br><br><br>
 <br><br><br><br>
